@@ -1,0 +1,1 @@
+Un pequeño diseño para un trabajo de un curso en el cual desarrollamos un banner para el sitio web de Bugatti en el quise representar la elegancia y la innovacion tecnologica que a desarollado la gran marca a lo largo de los años y hoy en dia realiza los coches deportivos más codiciados del mercado con sus grandes avances tanto mecánicos como tecnológicos
